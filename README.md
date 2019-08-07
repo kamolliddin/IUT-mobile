@@ -1,1 +1,0 @@
-# IUT-mobile
